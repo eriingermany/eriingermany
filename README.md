@@ -4,7 +4,7 @@
 
 ### Market Intelligence & Research Professional
 
-### 10 years turning messy market data into decisions — Medtech · FMCG · Finance
+### 10 years turning messy market data into decisions — MedTech · FMCG · Finance
 
 ### Frankfurt area, Germany · Open to Market Research / Data / Insights roles
 
